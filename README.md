@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RAPZ3880
-- 👀 I’m interested in badeball
+- 👀 I’m interested in making gorilla tag Cheats
 
 - 🌱 I’m currently learning math
 - 💞️ I’m looking to collaborate on codeing
